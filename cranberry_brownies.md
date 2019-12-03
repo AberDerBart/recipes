@@ -2,7 +2,7 @@
 
 *Kuchen, vegan*
 
-** 1/2 Blech**
+**1/2 Blech**
 
 ---
 
