@@ -8,7 +8,7 @@
 
 ## Teig
 
-- *300 g* Margerine
+- *300 g* Margarine
 - *250 g* Zucker
 - *1 Päckchen* Vanillezucker
 - *4* Eier
@@ -18,7 +18,7 @@
 
 ## Streusel
 
-- *150 g* Margerine
+- *150 g* Margarine
 - *150 g* Zucker
 - *150 g* Mehl
 - *50 g* Kakao

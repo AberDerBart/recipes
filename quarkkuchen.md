@@ -8,7 +8,7 @@
 
 ## Streußelteig:
 - *500 g* Mehl
-- *250 g* Margerine
+- *250 g* Margarine
 - *250 g* Zucker
 - *1 Päckchen* Vanillezucker
 - *1 Päckchen*  Backpulver
