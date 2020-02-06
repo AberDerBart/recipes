@@ -15,7 +15,7 @@ A handful of humble ingredients transforms into an incredible easy midweek meal.
 - *1 tbsp* olive oil
 - *2* garlic cloves , smashed (Note 1)
 - *1/2* large head of cauliflower , broken/cut into florets about 2"/5cm long (about 4 to 5 cups) (Note 2)
-- *8 oz / 250 g* fettuccine (or pasta of choice)
+- *250 g* fettuccine (or pasta of choice)
 - *1/2* red onion , thinly sliced
 - *1/2 to 1 tsp* red chili flakes
 - *1* lemon : 2 tbsp lemon juice + zest of 1/2 the lemon
