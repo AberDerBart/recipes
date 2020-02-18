@@ -1,8 +1,6 @@
 # Butterbrotauflauf
 
-Just as custards work well in the savory portion of the meal, although theyre more often served as a dessert, so do bread puddings. This one is a great complement to the Blowtorch Prime Rib Roast and Pan-Roasted Duck Breasts. But you could also top it with Oven-Roasted Tomatoes and serve it as a vegetarian meal.
-
-*vegetarisch*
+*vegetarisch, Auflauf*
 
 **6 Portionen**
 
@@ -19,8 +17,6 @@ Just as custards work well in the savory portion of the meal, although theyre mo
 - Salz
 - Pfeffer
 - Muskatnuss
-- *1 tablespoon* finely chopped chives
-- *1 teaspoon* thyme leaves
 
 ---
 
