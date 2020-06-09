@@ -8,7 +8,7 @@
 
 
 - *2 EL* Olivenöl
-- *2 TL* Kreuzkümmel
+- *4 TL* Kreuzkümmel
 - *4 EL* Mehl
 - *4 EL* Tomatenmark
 - *400 ml* Gemüsebrühe
@@ -27,7 +27,7 @@ Den Ofen auf 200°C vorheizen.
 
 ## Sauce
 
-Öl erhitzen, *1 TL* Kreuzkümmel, Mehl und Tomatenmark hinzufügen und unter Rühren anbraten.
+Öl erhitzen, *2 TL* Kreuzkümmel, Mehl und Tomatenmark hinzufügen und unter Rühren anbraten.
 Gemüsebrühe einrühreren und zum Kochen bringen.
 Hitze reduzieren und einkochen bis die Sacue leicht dick wird.
 Mit Salz und Pfeffer würzen.
@@ -35,7 +35,7 @@ Mit Salz und Pfeffer würzen.
 ## Füllung
 
 Die Frühlingszwiebeln in Scheiben schneiden, grünen Teil zur Seite stellen.
-In einer Schüssel 2/3 des Käses, Bohnen, Spinat Mais und weißen Teil der Frühlingszwiebeln mit *1 TL* Kreuzkümmel, Salz und Pfeffer würzen und vermischen.
+In einer Schüssel 2/3 des Käses, Bohnen, Spinat Mais und weißen Teil der Frühlingszwiebeln mit *2 TL* Kreuzkümmel, Salz und Pfeffer würzen und vermischen.
 
 ## Enchiladas
 
