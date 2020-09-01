@@ -27,6 +27,9 @@
 - *3 Päckchen*  Vanillezucker
 - *225 g* Butter
 
+## Garnitur:
+- Puderzucker
+
 ---
 
 Teig auf Blech geben, Füllung darüber verteilen, Streußel darüber streuen. Bei 150° Umluft ca. 40 min. backen. Mit Puderzucker bestreuen.
