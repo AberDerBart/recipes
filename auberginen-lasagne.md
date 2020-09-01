@@ -21,12 +21,12 @@
 
 ---
 
-Zunächst die Auberginen in Scheiben schneiden und salzen, dann in einer Schale oder ähnlichem ca. 1h stehen lassen.
+Zunächst die Auberginen in Scheiben schneiden und salzen, dann in einer Schale oder ähnlichem ca. 30 Minuten stehen lassen.
 
 Die Zwiebel und 2 Knoblauchzehen klein schneiden, in einer Pfanne leicht anbraten. Die passierten Tomaten hinzugeben, Basilikum klein schneiden und dazu geben, mit Pfeffer und salz und Paprika würzen. aufkochen lassen, ca. 5 min. köcheln, dann einen Becher Créme frâiche hinzugeben.
 
-Wenn die Auberginen so weit sind, in Mehl "wälzen" (mir fällt grad kein besseres Wort ein) und in reichlich Olivenöl braun anbraten (die nehmen ganz schön viel Öl auf).
-Alternativ im Ofen bei 180 40 min. backen.
+Wenn die Auberginen so weit sind, in Mehl wälzen, auf ein Backblech mit Backpapier legen, Olivenöl darüber verteilen, bei 200°C backen, bis sie braun werden, zwischendurch wenden.
 
-Zuletzt alles in einer Auflaufform schichten, zwischendrin ein wenig Parmesan und klein gehackten Knoblauch hinzugeben, Sauce darübergießen, den anderen Becher Créme frâiche darüber streichen, geriebenen Käse darüber streuen und ca. 20 min bei 200°C in den Backofen stellen.
+Zuletzt in einer Auflaufform abwechselnd Soße, Lasagneplatten, Créme frâiche und Auberginen schichten, zuletzt eine Schicht Créme frâiche, mit Käse bestreuen.
+Ca. 20 Minuten, bis die Käsekruste braun wird, bei 200°C backen.
 
