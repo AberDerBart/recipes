@@ -6,20 +6,26 @@
 
 ---
 
+- *16* Mais-Tortillas
+
+## Sauce
 
 - *2 EL* Olivenöl
-- *4 TL* Kreuzkümmel
+- *3 TL* Kreuzkümmel
 - *4 EL* Mehl
 - *4 EL* Tomatenmark
 - *400 ml* Gemüsebrühe
 - Salz
 - Pfeffer
+
+## Füllung
+
 - *300 g* geriebener Käse
 - *1 Dose (425 ml)* schwarze Bohnen
 - *300 g* Blattspinat
 - *1 Dose (330 g)* Mais
 - *6* Frühlingszwiebeln
-- *16* Mais-Tortillas
+- *2 TL* Kreuzkümmel
 
 ---
 
