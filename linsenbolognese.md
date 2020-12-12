@@ -1,4 +1,4 @@
-# Linsenlasagne
+# Linsenbolognese
 
 *Auflauf, vegetarisch, vegan*
 
