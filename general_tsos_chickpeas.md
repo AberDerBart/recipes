@@ -11,9 +11,9 @@ A simple and filling stir-fry of General Tso's chickpeas, a vegetarian and vegan
 ## For marinating the chickpeas:
 - *1 tbsp* soy sauce (or tamari for GF)
 - *1 tbsp* mirin (or dry sherry)
-- *1 and 1/2 cups* cooked chickpeas (equal to 1 15-oz. can), rinsed and drained
+- *1 can (425 ml)* cooked chickpeas (equal to 1 15-oz. can), rinsed and drained
 ## For the General Tso's sauce:
-- *6 tbsp* low-sodium vegetable broth (1/4 cup + 2 tbsp)
+- *100 ml* low-sodium vegetable broth (1/4 cup + 2 tbsp)
 - *1 and 1/2 tbsp* tomato paste
 - *1/2 tbsp* natural peanut butter
 - *1 tbsp* low-sodium soy sauce (or tamari for GF)
@@ -23,7 +23,7 @@ A simple and filling stir-fry of General Tso's chickpeas, a vegetarian and vegan
 - *1 tsp* toasted sesame oil
 - *1 tsp* prepared mustard (grainier and nuttier mustards are better; if using the bright yellow mustard, reduce to 1/2 tsp)
 - *1 tsp* cornstarch
-- *1/8 tsp* freshly ground black pepper or white pepper
+- freshly ground black pepper or white pepper
 ## For the General Tso's chickpeas stir-fry:
 - *1 tbsp* neutral oil (I used sunflower seed oil)
 - *1/4* of a large onion (or 1 shallot), thinly sliced

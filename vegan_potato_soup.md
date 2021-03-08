@@ -30,7 +30,6 @@ Thick, hearty and creamy Vegan Potato Soup. It's really simple to make and very 
 1. To a large saucepan, add the vegan butter/oil and warm over a medium heat before adding the onions, celery and carrots. Cook, stirring constantly, until the onions are just starting to get a little colour, then add the garlic and cook for another 2 minutes.
 2. Add the salt and pepper, then the flour to the pan and stir it all around for about a minute to cook the raw flour taste out, then slowly add the soy milk, stirring as you go to work out any lumps. Then add the vegetable broth (reserving about ½ a cup / 120 mls) , chopped potatoes, nutmeg and the bay leaf.
 3. Stir really well then let it simmer for about 30 minutes, or until the potatoes are soft and just starting to break down. Add all of, or some of, the reserved ½ a cup / 120 mls of broth if you prefer a thinner consistency. Taste and adjust seasoning if necessary.
-4. Serve as it is, or with toppings. See the post above for ideas.
 
 ## Recipe Notes
 
