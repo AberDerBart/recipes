@@ -4,25 +4,25 @@ Tagliatelle in veganer Spinat-Erdnuss-Sauce.
 
 *Vegetarisch, Gemüse, Hauptspeise, Nudeln, Pasta, Vegan*
 
-**4 Portion(en)**
+**4 Portionen**
 
 ---
 
-- 250 g Tagliatelle (Hartweizentagliatelle)
-- 400 g Blattspinat , frischer oder TK
-- 200 g Kirschtomate(n)
-- 2  Zwiebel(n)
-- 2  Knoblauchzehe(n)
-- 150 ml Sojasahne (Sojacreme Cuisine)
-- 150 ml Brühe , vegane
-- 3 TL Limettensaft
-- 5 EL Erdnussbutter , cremige
-- 2 EL Pflanzenöl
-- 2 EL Erdnüsse , geröstete, gesalzene
-- 1 Msp. Muskat , gemahlener
-- 1 Prise(n) Zucker
--  Salz
--  Pfeffer , frisch gemahlener
+- *250 g* Tagliatelle
+- *400 g* Blattspinat
+- *200 g* Kirschtomaten
+- *2* Zwiebeln
+- *2* Knoblauchzehen
+- *150 ml* Sojasahne (Sojacreme Cuisine)
+- *150 ml* Gemüsebrühe
+- *3 TL* Limettensaft
+- *5 EL* Erdnussbutter, cremige
+- *2 EL* Pflanzenöl
+- *2 EL* Erdnüsse, geröstet, gesalzen
+- *1 Msp.* Muskat, gemahlen
+- *1 Prise* Zucker
+- Salz
+- Pfeffer
 
 ---
 
