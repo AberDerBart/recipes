@@ -1,8 +1,8 @@
-# Bruschetta
+# Italienische Bruschetta
 
-mit Balsamico und Parmesan.
+Italienische Bruschetta - mit Balsamico und Parmesan. Über 126 Bewertungen und für raffiniert befunden. Mit ► Portionsrechner ► Kochbuch ► Video-Tipps!
 
-*Gemüse, Gemüse, Vorspeise, kalt, Italien, Europa, Vegetarisch, Party, Brotspeise, Snack, veganisierbar*
+*Gemüse, Vorspeise, kalt, Italien, Europa, Vegetarisch, Party, Brotspeise, Snack*
 
 **4 Portion(en)**
 
@@ -35,3 +35,4 @@ Nun werden die Tomaten halbiert und die Kerne und das weiche Fruchfleisch beseit
 Schneiden Sie nun das Baguette in 2 cm dicke Scheiben und braten Sie diese in einer Pfanne mit heißem Olivenöl auf beiden Seiten an, bis sie goldbraun sind. Jetzt sollten Sie schnell die Tomatenmasse mit einem Esslöffel auf die Brötchenteile geben, da sie sonst kalt und matschig werden. Breiten Sie die kleinen Bruschette auf einem Teller aus und verteilen Sie sie etwas. Nun Balsamicocreme auf ihnen verteilen. Zum Schluss geben Sie noch etwas geriebenen Parmesan über die Teilchen und garnieren Sie diese ggf. mit einem kleinen Basilikumblättchen. Bis das geschafft ist, haben die Bruschette die richtige Temperatur zum Verzehr erreicht.
 
 Das Ganze ist natürlich sehr zeitaufwändig, aber es lohnt sich.
+
