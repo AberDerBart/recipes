@@ -16,7 +16,7 @@
 - *1 große Dose* Kidneybohnen
 - *1 große Dose* Tomaten, geschält
 - *1* Lorbeerblatt
-- *1 TL, gehäuft* Kümmel, gemörsert (alternativ Kreuzkümmel)
+- *1 TL, gehäuft* Kreuzkümmel, gemahlen
 - *1 TL* Cayennepfeffer
 - *1 TL* Paprikapulver, edelsüß
 - *1/2 TL* Oregano
