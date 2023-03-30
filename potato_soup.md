@@ -1,8 +1,8 @@
-# Vegan Potato Soup
+# Potato Soup
 
 Thick, hearty and creamy Vegan Potato Soup. It's really simple to make and very budget friendly. You can enjoy it just as it is, or get crazy with toppings. I like to finish mine off with some crumbled tempeh bacon, crispy roasted potato chunks & a sprinkle of parsley for a pop of colour!
 
-*Entree, Soup, vegan*
+*Entree, Soup, vegan, vegetarian*
 
 **6 servings**
 
