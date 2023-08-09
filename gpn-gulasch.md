@@ -5,18 +5,18 @@
 ---
 
 - *360 g* Rinderfleisch vom Bug
-- *300 g* Paprika mix TK
+- *300 g* Paprika mix
 - *320 g* Kartoffeln frisch
 - *320 ml* passierte Tomaten
 - *320 ml* Tomaten in Stücken
 - *80 ml* Rotwein
-- *100 g* Karotten gewürfelt TK
+- *100 g* Karotten gewürfelt
 - *80 ml* Gemüsebrühe
 - *4 g* Paprika edelsüss
 - *2 g* Paprika rosenscharf
 - *0.8 g* Pfeffer schwarz
-- *10 g* Knoblauch TK
-- *100 g* Zwiebeln gewürfelt TK
+- *10 g* Knoblauch
+- *100 g* Zwiebeln gewürfelt
 - Majoran
 - Thymian
 - Oregano
@@ -25,10 +25,11 @@
 
 ## Vegan
 
-- *160 g* Sojaschnetzel statt Rinderfleisch
+- *160 g* Sojaschnetzel
 - *3 EL* Sojasauce
-- *Würze für Brühe (10l Gemüsebrühe, Paprika, Salz, Pfeffer, Majoran, granulierter Knoblauch)
-- evtl. *1000g* Tomatenmark + *100g* Zucker mit zum Anbraten
+- *250 ml* Gemüsebrühe
+- *40g* Tomatenmark zum Anbraten
+- *4g* Zucker mit zum Anbraten
 
 ---
 
