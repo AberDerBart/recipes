@@ -11,12 +11,13 @@
 ## Sauce
 
 - *2 EL* Olivenöl
-- *3 TL* Kreuzkümmel
-- *4 EL* Mehl
-- *4 EL* Tomatenmark
-- *400 ml* Gemüsebrühe
+- *1* Zwiebel
+- *2 TL* Kreuzkümmel
+- *1 EL* Tomatenmark
+- *800 ml* Tomaten, stückig
 - Salz
 - Pfeffer
+- Zucker
 
 ## Füllung
 
@@ -33,10 +34,10 @@ Den Ofen auf 200°C vorheizen.
 
 ## Sauce
 
-Öl erhitzen, *2 TL* Kreuzkümmel, Mehl und Tomatenmark hinzufügen und unter Rühren anbraten.
-Gemüsebrühe einrühreren und zum Kochen bringen.
-Hitze reduzieren und einkochen bis die Sacue leicht dick wird.
-Mit Salz und Pfeffer würzen.
+Zwiebel würfeln, in Öl glasig braten.
+Tomatenmark und Kreuzkümmeln hinzufügen und kurz mit anbraten.
+Tomaten hinzufügen, aufkochen, mit Salz und Pfeffer und Zucker abschmecken.
+Bei geringer Hitze weiter köcheln lassen (10 Minuten oder nach Belieben länger).
 
 ## Füllung
 
@@ -45,8 +46,10 @@ In einer Schüssel 2/3 des Käses, Bohnen, Spinat Mais und weißen Teil der Frü
 
 ## Enchiladas
 
-Die Füllung auf die Tortillas verteilen, Tortillas eng aufrollen und dicht an dicht in eine Auflaufform legen.
-Den verbleibenen Käse auf den Tortillas verteilen und Sauce darüber gießen.
+In eine Auflaufform eine Bodenschict der Sauce geben.
+Die Füllung auf die Tortillas verteilen, Tortillas eng aufrollen und dicht an dicht in die Auflaufform legen.
+Den verbleibenen Käse auf den Tortillas verteilen und übrige Sauce darüber gießen.
+Optional etwas Käse darüber streuen.
 Bei 200°C 15-20 Minuten backen, bis es heiß ist und Blasen wirft.
 5 Minuten abkühlen lassen und mit grünem Teil der Frühlingszwiebeln garniert servieren.
 
