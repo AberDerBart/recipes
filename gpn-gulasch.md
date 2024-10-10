@@ -4,7 +4,6 @@
 
 ---
 
-- *360 g* Rinderfleisch vom Bug
 - *300 g* Paprika mix
 - *320 g* Kartoffeln frisch
 - *320 ml* passierte Tomaten
@@ -23,7 +22,7 @@
 - Sojasauce
 - Zucker
 
-## Vegan
+## Marinierte Sojaschnetzel
 
 - *160 g* Sojaschnetzel
 - *3 EL* Sojasauce
@@ -35,8 +34,9 @@
 
 ## Zubereitung
 
+Sojaschnetzel und Sojasauce und Gemüsebrühe einlegen.
 Kartoffeln schälen und in kleine Stücke schneiden, parallel dazu:
-Fleisch anbraten mit Rotwein ablöschen und in einen großen Topf geben
+Sojaschnetzel anbraten mit Rotwein ablöschen und in einen großen Topf geben
 Tomate dazu geben und langsam schmoren lassen
 Zwiebeln andünsten, evtl mit Zucker bisschen karamellisieren, in den Topf geben
 Karotten und Paprika andünsten (und leicht bräunen/Farbe kriegen lassen) und dazu geben
