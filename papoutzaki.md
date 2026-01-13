@@ -15,7 +15,7 @@
 - *2 tablespoons* dried oregano
 - *32 oz* tomatoes I use San Marzanno whole tomatoes like Gustarosso.
 - *3 tablespoons* butter
-- *0.3333333333333333333333333333 cup* all purpose flour Keep some more around in case you need to thicken the sauce.
+- *1/3 cup* all purpose flour Keep some more around in case you need to thicken the sauce.
 - *1 cups* whole milk  at room temperature. Keep a little more around in case you need to loosen the sauce.
 - *1 cup* parmesan cheese  grated
 - *0.5 cup* feta cheese  crumbled
